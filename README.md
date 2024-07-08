@@ -15,7 +15,7 @@
 > *Number of visitors*
 * **Visitor Github @Opele19 **
 ![DUMAI-991](https://komarev.com/ghpvc/?username=Dumai-991&color=blue)
-* **Visitor Trending @MHF-233**
+* **Visitor Trending @naufalarkyy**
 ![DUMAI-200](https://komarev.com/ghpvc/?username=Dumai-200&color=blue)
 >
 ## MY SOCIAL MEDIA
